@@ -1,4 +1,5 @@
 ### Πέντε σχολιασμοί πάνω στην ομιλία του Christoph Cox – [*History of Sound Art*](https://youtu.be/hh_5_CAySXY) 
+
 &nbsp;
 Πρώτο σχόλιο (22:52)
 ***
